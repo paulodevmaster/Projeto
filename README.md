@@ -8,5 +8,3 @@ okay que bom, altera ai, estarei esperando ![Screenshot_20240402-122427](https:/
 
 Boa Paulo
  
-
-Vou continuar a fazer alterações necessárias...
